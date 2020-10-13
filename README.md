@@ -1384,3 +1384,12 @@ here's a potato ![Potato](https://blog.printsome.com/wp-content/uploads/potato-p
 I`m *[Hanna](https://github.com/HannaSyn)*, and I am really excited to join community! :smiling_face_with_three_hearts:
 ![kitten](https://slm-assets.secondlife.com/assets/16934237/view_large/animals_05.jpg) 
 ---
+
+Hi, everyone!
+
+My name is Dima. I hope to have a good time here.
+[kitten](https://www.humanesociety.org/sites/default/files/styles/1240x698/public/2018/08/kitten-440379.jpg?h=c8d00152&itok=1fdekAh2) 
+I dont know why, but everyone post a kitten image, so i did too)))
+And now I will try to figure out, how to start this course.
+Good luck everyone!
+---
